@@ -1,1 +1,0 @@
-Readme ya pili
